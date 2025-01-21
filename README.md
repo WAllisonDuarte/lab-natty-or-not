@@ -11,7 +11,7 @@ Utilizei o "ChatGPT" , para  apontar os principais  risco da utilização da IA.
 
 ## 🚀 Resultados
 
-Foram apresentados pode de reflexão , na utilização de IA.
+Foram apresentados argumentos para  reflexão , na utilização de IA.
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
